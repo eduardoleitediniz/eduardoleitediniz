@@ -1,16 +1,18 @@
 ## Hi there 👋
 
-<!--
+
 **eduardoleitediniz/eduardoleitediniz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+Aqui estão algumas ideias para você começar:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- 🔭 Atualmente estou trabalhando na escola
+- 📫 Como entrar em contato comigo: gmail eduardo.leite.diniz@escola.pr.gov.br
+- 😄 Pronomes: ele/dele
+- ⚡ Curiosidade: gosto de tocar bateria
+- 🎬 filme favorito: whiplash e a origem
+- 🎬 serie favorita: suits
+- 🎮 jogo favorito: the last of us 1
+- 🎵 musica favorita: várias
+- 
+  
+
