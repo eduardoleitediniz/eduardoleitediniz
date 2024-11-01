@@ -13,5 +13,3 @@ Aqui estão algumas ideias para você começar:
 - 🎬 serie favorita: suits
 - 🎮 jogo favorito: the last of us 1
 - 🎵 musica favorita: várias
-  
-
