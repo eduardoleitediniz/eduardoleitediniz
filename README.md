@@ -14,11 +14,13 @@ Aqui estão algumas ideias para você começar:
 - 🎮 jogo favorito: the last of us 1
 - 🎵 musica favorita: várias
 
+- [musica boa](https://youtu.be/38CRu1rCaKg?si=GkwoSQefoxxTlHHX)
+
 
 ![](https://media1.tenor.com/m/xo_VcKlhZiYAAAAd/vinijr.gif)
 
 
-
+![](https://media1.tenor.com/m/Vql0fxFa4FIAAAAd/whiplash-miles.gif)
 
 
 ![](https://media1.tenor.com/m/PWzqgsV5oaIAAAAd/playing-drums-miles-teller.gif)
