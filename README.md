@@ -13,3 +13,12 @@ Aqui estão algumas ideias para você começar:
 - 🎬 serie favorita: suits
 - 🎮 jogo favorito: the last of us 1
 - 🎵 musica favorita: várias
+
+
+![](https://media1.tenor.com/m/xo_VcKlhZiYAAAAd/vinijr.gif)
+
+
+
+
+
+![](https://media1.tenor.com/m/PWzqgsV5oaIAAAAd/playing-drums-miles-teller.gif)
